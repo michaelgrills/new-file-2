@@ -1,1 +1,1 @@
-<meta content='0; url = https://fullvideoshere9303.blogspot.com/2023/11/blog-post.html' http-equiv='refresh'/>
+<meta content='0; url= https://bit.ly/40BSC1y' http-equiv='refresh'/>
