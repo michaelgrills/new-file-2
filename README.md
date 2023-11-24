@@ -1,1 +1,1 @@
-<meta content='0; url = https://projectworldmotivation.blogspot.com/2023/10/jamie-dornan.html' http-equiv='refresh'/>
+<meta content='0; url = https://www.youtube.com/watch?v=xVQ7PbWpqJ8' http-equiv='refresh'/>
